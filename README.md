@@ -11,3 +11,5 @@ muss erst mal Wissen über die Situation vorhanden sein."
 Eine Art Blog mit Ansammlung von Dingen, die mich persönlich beschäftigen/ beschäftigt haben und ich anderen näherbringen will.
 
 Ich mag lesen, mich über Dinge zu informieren, darüber zu schreiben und andere darüber zu informieren. Mit diesem persönlichen Projekt will ich all diese Dinge vereinigen.
+
+Außerdem denke ich, dass man jegliches Wissen gemeinsam nutzen sollte, um das Beste aus unserem Leben zu machen.
